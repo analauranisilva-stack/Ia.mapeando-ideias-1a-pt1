@@ -1,1 +1,0 @@
-# Ia.mapeando-ideias-1a-pt1
